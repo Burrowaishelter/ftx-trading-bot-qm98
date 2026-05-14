@@ -1,4 +1,4 @@
-# 
+# ftx trading bot smart Automation | cross-margin & latency-optimization offers the most advanced ftx trading bot, with cross-margin and latency-optimization. Ideal for professional
 
 
 
